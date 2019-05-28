@@ -1,1 +1,0 @@
-fulgencc.github.io
